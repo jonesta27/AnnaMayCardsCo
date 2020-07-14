@@ -1,2 +1,2 @@
-# AnnaMay's Card web site called 'annamaycardco'
+# AnnaMay's Card web site called 'annamaycardco' I think.
 
